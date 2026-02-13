@@ -1,1 +1,0 @@
-jnbvlkuhg lkuòlreho i
